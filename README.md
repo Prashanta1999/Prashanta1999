@@ -1,7 +1,7 @@
 - 👋 Hi there, I'm Prashanta!
 - 👀 I'm passionate about exploring new      technology and innovations.
 - 🌱 Currently, I'm diving into various      tech topics to expand my knowledge.
-- 💞️ I'm open to collaborating on            exciting projects! Feel free to         reach out at                             prashantachowdhury683@gmail.com.
+- 💞️ I'm open to collaborating on            exciting projects! Feel free to         reach out at                             prashantaofficialwork02@gmail.com
 - 📫 You can reach me via [email](prashantaofficialwork02@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/prashanta-chowdhury-03766a239).
 Let's innovate and create together! 😄
 - 😄 Pronouns: he/him
